@@ -11,5 +11,4 @@ Jika teman - teman tertarik dengan pemograman, jangan lupa dukung selalu channel
 
 
 📢 LIKE FACEBOOK FANS PAGE 📢
-https://www.facebook.com/kecoaksaktiofficial/
-(Sharing penyelesaian kasus tentang Komputer)
+- https://www.facebook.com/kecoaksaktiofficial/ (Sharing penyelesaian kasus tentang Komputer)
